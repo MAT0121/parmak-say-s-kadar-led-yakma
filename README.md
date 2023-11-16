@@ -1,0 +1,1 @@
+# parmak-say-s-kadar-led-yakma
